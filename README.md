@@ -1,0 +1,1 @@
+# Calcularecuacions-de-segundogrado
